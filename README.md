@@ -1,0 +1,1 @@
+# Nursyatika-github.io-p05-jquery-delete-
